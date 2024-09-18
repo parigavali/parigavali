@@ -2,7 +2,7 @@
 - 👀 I’m interested in : Technology, engineering, and travel projects.
 - 🌱 I’m currently learning : Diploma engineering, and working on projects related to travel and tourism.
 - 💞️ I’m looking to collaborate on : Tech-focused projects that merge creativity and innovation, especially in front-end and back-end development for websites.
-- 📫 How to reach me :ig: @_simply_pari_
+- 📫 How to reach me :ig: @_simply_pari__
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I enjoy creating vibrant designs and I am passionate about combining tech with artistic flair!
 
